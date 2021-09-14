@@ -1,0 +1,1 @@
+# tyt-cografya-planli-ders-foyu-32
